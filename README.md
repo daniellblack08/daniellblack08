@@ -2,7 +2,6 @@
 *Artist and production designer, storyteller and crafter* 
 
 i'm an artist who specializes in translating stories and ideas into symbols, characters, and backgrounds. 
-
 I enjoy working in a variety of media, from digital to tangible objects (with a special fondness for paper, fabric, and ceramics).
 _let's work together_
 ### Contact
