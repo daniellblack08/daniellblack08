@@ -1,5 +1,11 @@
-## Hi there 👋
-
+# daniell black - afr4b3n
+*Artist and production designer, storyteller and crafter* 
+i'm an artist who specializes in translating stories and ideas into symbols, characters, and backgrounds. 
+I enjoy working in a variety of media, from digital to tangible objects (with a special fondness for paper, fabric, and ceramics).
+_let's work together_
+###Contact
+- [Instagram] (https://www.instagram.com/daniellblack_/)
+- daniellblack08@gmail.com
 <!--
 **daniellblack08/daniellblack08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
